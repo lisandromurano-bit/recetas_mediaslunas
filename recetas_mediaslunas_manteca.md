@@ -19,7 +19,6 @@
 
 **Paso 1: Preparar la levadura** 
 Colocá la leche tibia en un recipiente y disolvé allí la levadura. Es importante que la leche esté tibia para que la levadura se disuelva fácilmente. Revolvé con una cucharita o tenedor hasta integrar totalmente. Reservá.
-
 **Paso 2: Formar la masa base:** 
 Volcá el medio kilo de harina en un bol y formá una corona (un pequeño hueco en el medio). Agregá la sal alrededor de la corona, fuera del hueco. Esto es importante porque la sal contrarresta el efecto de la levadura; al ponerla separada, las medialunas quedarán bien esponjosas.
 En el hueco central, agregá la azúcar, el huevo, la leche con levadura disuelta y la miel. Batí con un tenedor desde el centro hacia los bordes. Vas a ver cómo se va formando una masa.
